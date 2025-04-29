@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Abraham Sackey Ohene Gyan
 - 👀 I’m interested in coding
 - 🌱 Software Engineer
-- 💞️ I’m looking to collaborate on anything and with everyone 
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me ...IG: iam_odlj Snapchat: iam-odlj
 - 😄 Pronouns: he
 - ⚡ Fun fact: normal
